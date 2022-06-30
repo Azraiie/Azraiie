@@ -1,0 +1,6 @@
+- 👋 Howdy, I’m @Azraiie
+- 👀 I’m interested in doing something dumb and useless.
+- 🌱 I’m currently learning how to spell **Equus Africanus Asinus**.
+- 💞️ I’m looking to collaborate on something and something. Wanna collab?
+- 📫 How to reach me? Nah, trust me. You won't do that.
+- 💩 In case you still need me and I really hope not do contact me via [Instagram](https://instagram.com/macazraiie) or [Lnatic](https://lnatic.com/).
